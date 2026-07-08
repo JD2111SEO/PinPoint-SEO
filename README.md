@@ -1,2 +1,0 @@
-# PinPoint-SEO
-Pinpoint
